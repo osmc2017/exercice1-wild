@@ -1,5 +1,6 @@
 # CV Lionel Bartaire
 
+![MA PHOTO DE CHAT](https://www.shutterstock.com/image-photo/cat-yellow-face-sitting-on-600nw-2470054451.jpg)
 * ## COORDONNEE
 
   *Lionel Bartaire                    
